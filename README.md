@@ -1,2 +1,0 @@
-# SimranjeetKaur.github.io
- 
